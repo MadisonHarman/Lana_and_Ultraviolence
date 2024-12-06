@@ -3,9 +3,9 @@
 
 Adhitya, Galant Nanta, and Nadia Lasari. "Desiring Domination: A Postfeminist Study on the 
 	
-  Lyrics of Lana Del Rey’s Ultraviolence Album." Rubikon: Journal of Transnational American 
+  /tLyrics of Lana Del Rey’s Ultraviolence Album." Rubikon: Journal of Transnational American 
 	
-  Studies 6.1 (2020): 34-47. Accessed 4 Dec. 2024.
+  /tStudies 6.1 (2020): 34-47. Accessed 4 Dec. 2024./n
 
 
 Del Rey, Lana. “Blue Jeans.” Born to Die. Interscope Records, 2012. Spotify, 
