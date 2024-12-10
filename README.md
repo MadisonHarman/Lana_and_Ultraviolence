@@ -1,6 +1,6 @@
 # HNRS 2021 Final Project
 ## Website Template & Images
-https://github.com/yenchiah/project-website-template
+https://github.com/yenchiah/project-website-template<br>
 Images are sourced from myself, Lana Del Rey's works, or a combination of both!
 
 ## Bibliography
