@@ -1,4 +1,4 @@
-# HNRS 2021 Final Project
+# Lana Del Rey’s Desire: Reinforcing and Critiquing Toxic Relationships
 Images/videos are sourced from myself, Lana Del Rey's works, or a combination of both!
 
 ## Website Template
@@ -22,7 +22,7 @@ Del Rey, Lana. “Born to Die.” Born to Die. Interscope Records, 2012. <en>Spo
 
 &emsp;Accessed 27 Oct. 2024.<br>
 
-Del Rey, Lana. “Norman fucking Rockwell.” Norman Fucking Rockwell. Interscope Records, 2012. <em>Spotify,</em> 
+Del Rey, Lana. “Norman fucking Rockwell.” Norman Fucking Rockwell. Interscope Records, 2019. <em>Spotify,</em> 
 
 &emsp;https://open.spotify.com/track/3RIgHHpnFKj5Rni1shokDj?si=0c6b93ecb6554f11. 
 
